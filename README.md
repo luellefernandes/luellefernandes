@@ -23,7 +23,7 @@
 - Badminton 🏸
 
 ### 📫 Connect With Me
-- LinkedIn: [My LinkedIn](www.linkedin.com/in/luelle-fernandes-3a7615448)
+- LinkedIn:(www.linkedin.com/in/luelle-fernandes-3a7615448)
 
 ---
 Learning something new, one line of code at a time!
